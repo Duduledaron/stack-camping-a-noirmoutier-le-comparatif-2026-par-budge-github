@@ -1,0 +1,1 @@
+# stack-camping-a-noirmoutier-le-comparatif-2026-par-budge-github
